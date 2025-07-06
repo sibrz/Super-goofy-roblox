@@ -1,1 +1,1 @@
-a open source funny vbs 
+it's a vbs that make roblox dirty
